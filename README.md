@@ -1,2 +1,1 @@
-# actividad_grupal2
-Actividad grupal2
+Juan Camilo
